@@ -1,1 +1,1 @@
-### I am.
+### Dimensionality is a function of consciousness.
